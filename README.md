@@ -1,4 +1,4 @@
-# Tastopia Privacy Policy
+# Privacy Policy
 
 Wei-Yu Chen built the Tastopia app as a Free app. This SERVICE is provided by Wei-Yu Chen at no cost and is intended for use as is.
 
